@@ -1,1 +1,1 @@
-# List of publications: here
+List of publications: here
